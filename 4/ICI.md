@@ -43,3 +43,8 @@ Debido a tu errónea decisión la puerta no abre. Durante su permanencia en esa 
 ### Autores
 
 Juan Diego Moreno - Luis Carlos Bonilla - Néstor Chacón
+### Historia (I.C.I)
+La puerta no se abrió, ¿Qué podía hacerpara abrir esa puerta? Las paredes del patio eran demasiado altas y no había nada que pudiera trepar a la vista, además no sabía qué encontraría del otro lado de la pared. Ella vuelve a la casa tratando de buscar otra salida, pero fue en vano, apenas entró sintió la presencia de un cuerpo, no mas grande que ella, pero si mas fuerte y sin uso de razón, despedía baba de su boca y al parecer estaba hambriento.
+Ella fue atacada por un perro catalogado como peligroso, heridas letales, y al final, muy poco de Ella, no lo sufuciente para poder identificarla.
+## Grupo
+Alison Sandoval, Danna Tarazona, Marcy Mateus, Sofia Zambrano
